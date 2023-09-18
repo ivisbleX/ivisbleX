@@ -8,8 +8,7 @@
 ***
  ## about me :  
  My name is ***Ali Ezeldin***      
- I am a ***beginner programmer*** 💻   
- I have ***11 years***    
+ I am a ***beginner programmer*** 💻       
  I am from ***EGYPT***  
  
 ***To contact me:***
