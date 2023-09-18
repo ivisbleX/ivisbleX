@@ -15,6 +15,7 @@
 ***To contact me:***
 * **Email** : dobsyali@gmail.com 
 * **Discord DM** : invisible_x
+* **Other** : is on my profile
 
 Thanks for reading 🙂
  
